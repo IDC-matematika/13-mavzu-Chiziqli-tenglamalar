@@ -1,0 +1,1 @@
+# 13-mavzu-Chiziqli-tenglamalar
